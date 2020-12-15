@@ -2,7 +2,7 @@
 ## **Experienced User Experience Designer** 
 214-405-8741 / [www.kristensunny.com](https://www.kristensunny.com/) / 
 kristenmsunny@gmail.com / 
-[linkedin.com/in/kristensunny/](www.linkedin.com/in/kristensunny/) 
+[linkedin.com/in/kristensunny/](https://www.linkedin.com/in/kristensunny/) 
 
 ### **SKILLS**
 - User Experience Design
